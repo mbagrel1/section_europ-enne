@@ -15,3 +15,6 @@ Bien que je ne soit pas encore en terminale, je peut déja dire qu' à la fin de
 ## Thématiques principales
 
 Dans le cadre de l'option, les professeurs organisent des compétitions entre classes européennes sous différentes formes en fonction des années. Mon année de seconde était dédiée aux éléctions dun président de la section euro avec les mêmes méthodes qu'aux USA. Pour mon année de première, une compétition avec des maisons comme dans le film Harry Potter a été organisé avec diverses activités pour remporter des points.
+
+
+Pout toute question, veuillez me contacter à l'adresse suivante : mariebagrel54@gmail.com
